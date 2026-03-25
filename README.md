@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RAPA980214HMCMSL01
+RAPA980214HMCMSL01
